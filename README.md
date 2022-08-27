@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JuliusHR
-- 👀 I’m an Outsourced HR
+- 👀 I’m a HR Recruiter
 - I do recruit for Multiple MNC
 - Python,java,.net,project manager,product manager, etc..
 - 📫 How to reach me .Juliusgodson.hrteam@gmail.com / 8925357778
